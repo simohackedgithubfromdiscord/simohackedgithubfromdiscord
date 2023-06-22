@@ -1,0 +1,5 @@
+- 👋 Hi, I’m Simo!
+- 👀 I’m interested in coding python.
+- 🌱 I’m currently learning python and C++!
+- 😡 I hate people that hates python!
+- My discord is aaaaaaSIMO#3286 !
